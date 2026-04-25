@@ -6,7 +6,7 @@
   <tr>
 
    <p align="center">          
-$${\color{#2e2d27} c+h's　\color{#514f43} welcomed　\color{#63654d} unless　\color{#6b785e} said　\color{#6c8064} otherwise　}$$
+$${\color{#2e2d27} read　\color{#514f43} strawpage　\color{#63654d} before　\color{#6b785e} interacting 　\color{#6c8064} !!! 　}$$
 <tr>
       <tr></tr>
 
