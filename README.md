@@ -1,16 +1,16 @@
-<p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Transitional&size=25&duration=3000&pause=1000&color=91A185&center=true&vCenter=true&width=650&lines=I'll+break+your+bones;With+all+the+love+I+carry" alt="Typing SVG" /></a>
+<div align="center">
+ wip
 
-<p align="center">
-<img src="https://github.com/ClownPierce3/ClownPierce3/blob/a55865a6bce6bcbdbbf037cbe6fa36c321f22b26/reireirei.webp" width="700" height="700" alt="image">
-  <tr>
+<!--
+<div align="center">
 
-   <p align="center">          
-$${\color{#2e2d27} read　\color{#514f43} strawpage　\color{#63654d} before　\color{#6b785e} interacting 　\color{#6c8064} !!! 　}$$
-<tr>
-      <tr></tr>
+<a href="https://hits.sh/github.com/ClownPierce3/"><img alt="Hits" src="https://hits.sh/github.com/ClownPierce3.svg?view=today-total&label=%F0%90%94%8C%E1%A9%A7%F0%93%8F%BC%E2%99%A1%D6%AF%20%CC%A3%CC%A3%E0%A7%A7&extraCount=3242026&color=8d7faf&labelColor=dfdfe0"/></a>
 
- <p align="center">
-<a href="https://rentry.co/wemmburps"><img src="https://readme-typing-svg.demolab.com?font=Asset&size=16&duration=18&pause=&color=2E2D27&center=true&vCenter=true&repeat=false&width=200&height=30&lines=Rentry" alt="Typing SVG" /></a> <a href="https://reuuhs.atabook.org"><img src="https://readme-typing-svg.demolab.com?font=Asset&size=16&duration=18&pause=&color=514F43&center=true&vCenter=true&repeat=false&width=200&height=30&lines=Atabook" alt="Typing SVG" /></a> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Asset&size=16&duration=18&pause=&color=63654D&center=true&vCenter=true&repeat=false&width=200&height=30&lines=Strawpage" alt="Typing SVG" /></a>
+<img src="https://github.com/ClownPierce3/ClownPierce3/blob/654d9b4bb8cc369bae4b9bf71682e5595b996ebc/reireirei.webp" width="50%">
+ 
+   <p align="center">  
+✿̲𓏼゛  <img src="https://github.com/ClownPierce3/ClownPierce3/blob/20932041b64b1dbd553baf60a626e058d64f6400/reeeeii.webp" width="5%">　　  
+໒ ᩧੑཾ𓏼 › ᗜ 𑁭͡   Ი𓈒ᰍ。　taken　𓏼˚̣̣̣　 𝓵ᴏꜱᴛ  ݂⠀ ᴄᴀᴜꜱᴇ⠀ ݂𓈒ּ֯݁
 
-<img src="https://github.com/ClownPierce3/ClownPierce3/blob/cc8b7d80f97d42485d69eb75a4c410b78461beac/35%20sin%20t%C3%ADtulo_20260422230832.png" width="400" height="400" alt="image">
+
+<p align="center">  
