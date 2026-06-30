@@ -6,7 +6,7 @@
  
    <p align="center">  
 ✿̲𓏼゛  <img src="https://github.com/ClownPierce3/ClownPierce3/blob/20932041b64b1dbd553baf60a626e058d64f6400/reeeeii.webp" width="3%">　　  
-໒ ᩧੑཾ𓏼 › ᗜ 𑁭͡   Ი𓈒ᰍ。　taken　𓏼˚̣̣̣　 𝓵ᴏꜱᴛ  ݂⠀ ᴄᴀᴜꜱᴇ⠀ ݂𓈒ּ֯݁
+໒ 𓏼    ׅ 𝄂𝄚𝅦𝄚𝄞𝅄 　taken　𓏼˚̣̣̣　 𝓵ᴏꜱᴛ  ݂⠀ ᴄᴀᴜꜱᴇ⠀ ݂𓈒ּ֯݁
 
 
 <p align="center">  
