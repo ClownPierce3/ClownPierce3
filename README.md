@@ -5,8 +5,7 @@
 <img src="https://github.com/ClownPierce3/ClownPierce3/blob/654d9b4bb8cc369bae4b9bf71682e5595b996ebc/reireirei.webp" width="50%">
  
    <p align="center">  
-✿̲𓏼゛  <img src="https://github.com/ClownPierce3/ClownPierce3/blob/20932041b64b1dbd553baf60a626e058d64f6400/reeeeii.webp" width="3%">　　  
- 𓏼 ׅ 𝄂𝄚𝅦𝄚𝄞𝅄    　taken　𓏼˚̣̣̣　 𝓵ᴏꜱᴛ  ݂⠀ ᴄᴀᴜꜱᴇ⠀ ݂𓈒ּ֯݁
+✿̲𓏼゛  <img src="https://github.com/ClownPierce3/ClownPierce3/blob/20932041b64b1dbd553baf60a626e058d64f6400/reeeeii.webp" width="3%">　𓏼 ׅ 𝄂𝄚𝅦𝄚𝄞𝅄    　taken　𓏼˚̣̣̣　 𝓵ᴏꜱᴛ  ݂⠀ ᴄᴀᴜꜱᴇ⠀ ݂𓈒ּ֯݁
 
 
 <p align="center">  
